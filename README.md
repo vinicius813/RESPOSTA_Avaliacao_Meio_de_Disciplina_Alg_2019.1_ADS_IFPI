@@ -1,0 +1,1 @@
+# RESPOSTA_Avaliacao_Meio_de_Disciplina_Alg_2019.1_ADS_IFPI
